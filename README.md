@@ -1,6 +1,4 @@
-# sagesupportt.github.io
-
-# How to Contact Sage 50 Support Team? 
+How to Contact Sage 50 Support Team? 
 
 # Call NOW - +1(833) 561-0071
 
